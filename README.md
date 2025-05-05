@@ -28,5 +28,5 @@
 ---
 
 📝 I believe good tools and good thinking go hand in hand.
-📫 Reach out or follow along: \[your email or link here]
+📫 Reach out or follow along:rahit125pal@gmail.com
 
